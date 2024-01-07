@@ -103,6 +103,6 @@ Press `Ctrl+b` and then `d`
 - <b>[ᴍᴀʜᴛᴏ](https://github.com/mahtoanjali)  ➻  [ᴛɢ ʙᴏᴛ](https://github.com/mahtoanjali/AnjaliRobot) </b>
 - <b>[ᴍᴀʜᴛᴏ](https://github.com/mahtoanjali)  ➻  [ᴍᴀʜᴛᴏ](https://github.com/mahtoanjali/AnjaliRobot) </b>
  
-<b>ᴀɴᴅ ᴀʟʟ [ᴛʜᴇ ᴄᴏɴᴛʀɪʙᴜᴛᴏʀs](https://github.com/mahtoanjali/AnjaliRobot/graphs/contributors) ᴡʜᴏ ʜᴇʟᴩᴇᴅ ɪɴ ᴍᴀᴋɪɴɢ ғᴀʟʟᴇɴ ✘ ʀᴏʙᴏᴛ ᴜsᴇғᴜʟ & ᴩᴏᴡᴇʀғᴜʟ 🖤 </b>
+<b>ᴀɴᴅ ᴀʟʟ [ᴛʜᴇ ᴄᴏɴᴛʀɪʙᴜᴛᴏʀs](https://github.com/mahtoanjali/AnjaliRobot/graphs/contributors) ᴡʜᴏ ʜᴇʟᴩᴇᴅ ɪɴ ᴍᴀᴋɪɴɢ ᴀɴᴊᴀʟɪ ✘ ʀᴏʙᴏᴛ ᴜsᴇғᴜʟ & ᴩᴏᴡᴇʀғᴜʟ 🖤 </b>
 
 ━━━━━━━━━━━━━━━━━━━━
